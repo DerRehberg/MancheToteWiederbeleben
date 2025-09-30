@@ -17,7 +17,7 @@ gönnung mit weidenrinde extrakt
 
 <img width="787" height="798" alt="swappy-20250930_102129" src="https://github.com/user-attachments/assets/872ea9c3-f175-41c9-9338-0c8a13056c48" />
 
-# Der heilige Tipp, nicht vergessen am Ende Strom drauf auf die Person aber Lebenszüchter weiß noch mehr!
+# Der heilige Tipp, nicht vergessen am Ende Strom drauf auf die Person aber Lebenszüchter weiß noch mehr was besseres oder mehr! 
 
 
 <img width="830" height="660" alt="swappy-20250930_103024" src="https://github.com/user-attachments/assets/1ef76b45-64b1-4914-b088-93caf988b4bb" />
