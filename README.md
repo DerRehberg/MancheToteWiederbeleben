@@ -1,4 +1,4 @@
-# MancheToteWiederbeleben
+# MancheToteWiederbeleben (Nach dem Tod ist nicht allzuviel Zeit, vorallem bei verwesung vom Gehirn weil dann ist die Person nicht mehr ganz sich selbst)
 Anleitung, empfehle alle 6 Stunden zu gießen, aber nicht den ganzen Liter, das wäre zuviel
 
 300 Gramm Wurzeln von Symphytum officinale
