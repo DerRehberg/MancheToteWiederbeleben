@@ -1,6 +1,6 @@
 # MancheToteWiederbeleben 
 # (Nach dem Tod ist nicht allzuviel Zeit, vorallem bei verwesung vom Gehirn weil dann ist die Person nicht mehr ganz sich selbst)
-Anleitung, empfehle alle 6 Stunden zu gießen, aber nicht den ganzen Liter, das wäre zuviel, vielleicht so 1/6, oder 1.5/6
+Anleitung, empfehle alle 6 Stunden zu gießen, aber nicht den ganzen Liter, das wäre zuviel, vielleicht so 1/6, < oder 1.5/6
 
 300 Gramm Wurzeln von Symphytum officinale
 300 gramm Taraxcum officinale Blätter
