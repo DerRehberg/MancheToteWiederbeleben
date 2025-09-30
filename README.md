@@ -16,4 +16,5 @@ gönnung mit weidenrinde extrakt
 
 
 <img width="787" height="798" alt="swappy-20250930_102129" src="https://github.com/user-attachments/assets/872ea9c3-f175-41c9-9338-0c8a13056c48" />
-# Der heilige Tipp, nicht vergessen am Ende Strom drauf!
+
+# Der heilige Tipp, nicht vergessen am Ende Strom drauf die Person!
