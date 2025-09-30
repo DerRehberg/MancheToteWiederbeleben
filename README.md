@@ -32,5 +32,5 @@ gönnung mit weidenrinde extrakt
 <img width="807" height="722" alt="swappy-20250930_110059" src="https://github.com/user-attachments/assets/ff9ceb75-a05a-48fb-8428-c04346b2f04c" />
 
 
-# Notfalls einfach Adrenalin Spritze ballern
+# Notfalls einfach Adrenalin Spritze ballern und wenn die Person wieder läuft, nicht das Essen und Trinken, Bierchen und bisschen Fett vergessen für die Kcal und Nährstoffe
 
