@@ -22,5 +22,9 @@ gönnung mit weidenrinde extrakt
 
 <img width="830" height="660" alt="swappy-20250930_103024" src="https://github.com/user-attachments/assets/1ef76b45-64b1-4914-b088-93caf988b4bb" />
 
+
+<img width="802" height="814" alt="swappy-20250930_103514" src="https://github.com/user-attachments/assets/fd06bc36-4ccd-4e25-bc67-ef75b2ebe00c" />
+
+
 # Notfalls einfach Adrenalin Spritze ballern
 
