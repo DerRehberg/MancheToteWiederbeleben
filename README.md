@@ -34,3 +34,8 @@ gönnung mit weidenrinde extrakt
 
 # Notfalls einfach Adrenalin Spritze ballern und wenn die Person wieder läuft, nicht das Essen und Trinken, Bierchen und bisschen Fett vergessen für die Kcal und Nährstoffe
 
+
+Ich vertrau Lebenszüchter hier iwie bisschen mehr was geht.
+
+<img width="827" height="758" alt="image" src="https://github.com/user-attachments/assets/803d923a-8f54-4e0f-a073-ee9e692821b3" />
+
